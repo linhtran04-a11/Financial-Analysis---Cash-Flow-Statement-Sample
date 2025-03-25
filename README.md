@@ -1,1 +1,1 @@
-This is an example of my work for Project Destined's Real Estate Private Equity Internship.
+This is an example of my work for Project Destined's Real Estate Private Equity Internship. During this internship, I am engaging in a 7-week real estate private equity training program, gaining hands-on experience in underwriting three multifamily deals individually and in teams while preparing for a private equity-style pitch competition.
